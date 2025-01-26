@@ -7,5 +7,9 @@ I love drawing in other people straw pages, I usually sign with a W
 
 my main ponies:
 
-<img src="https://f2.toyhou.se/file/f2-toyhou-se/images/94808808_VfRf4uXiG0K0xiO.gif" width="300">
+https://toyhou.se/30058954.willyh-wonkah-sona
+https://toyhou.se/30259602.skbidi-toilet-tbn
+
+( pls don't copy them :c ) 
+
 
