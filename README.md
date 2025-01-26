@@ -12,4 +12,4 @@ https://toyhou.se/30259602.skbidi-toilet-tbn
 
 ( pls don't copy them :c ) 
 
-
+if you need fast replies you can dm me on discord (Wetasisi) 
