@@ -5,7 +5,7 @@ check my strawpage for More info
 
 sometimes I reply slowly cuz english isn't my main language, keep that in mind (+ sometimes I'm afk, but usually I always reply whispers) 
 
-I'm neurodivergent and i use tone tags, tone tags are appreciated :3! 
+I'm neurodivergent and i use tone tags :3! 
 
 I love drawing in other people straw pages, I usually sign with a W
 
