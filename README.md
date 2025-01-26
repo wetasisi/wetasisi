@@ -12,8 +12,8 @@ I love drawing in other people straw pages, I usually sign with a W
 
 my main ponies:
 
-https://toyhou.se/30058954.willyh-wonkah-sona
-https://toyhou.se/30259602.skbidi-toilet-tbn
+https://toyhou.se/30058954.willyh-wonkah-sona [trollsona]
+https://toyhou.se/30259602.skbidi-toilet-tbn [oc]
 
 ( pls don't copy them :c ) 
 
