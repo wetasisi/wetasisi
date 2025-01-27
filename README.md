@@ -17,4 +17,7 @@ https://toyhou.se/30259602.skbidi-toilet-tbn [oc]
 
 ( pls don't copy them :c ) 
 
-if you need contact me/fast replies you can dm me on discord (Wetasisi) :) ! 
+if you need contact me/fast replies you can dm me on discord Wetasisi :) !
+
+⬆️ btw if You want you can infodump/tell me about your interests too, (pls talk me about Homestuck or fan trolls/kids👀) 
+
