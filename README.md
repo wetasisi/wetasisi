@@ -3,8 +3,11 @@ ESP/ENG
 
 check my strawpage for More info (skins, misc stuff, etc)
 
+I PUT MY GITHUB IN MY PONIES, IF I DONT HAVE MY GITHUB THAT PERSON ISNT ME!!!
 
-sometimes I reply slowly/dry cuz english isn't my main language and/or sometimes i dont want to talk, keep that in mind (+ im usually I'm afk, but usually I always reply whispers, if you really need to tell me something dm on disc or twt) 
+sometimes I reply slowly/dry cuz english isn't my main language and/or sometimes i dont want to talk, keep that in mind (+ im usually I'm afk/offtab, but usually I always reply whispers, if you really need to tell me something dm on disc or twt) 
+
+I HAVE  WIFI ISSUES 24/7 !!!! so sometimes i dissonect and rejoin the game a lot
 
 I'm neurodivergent and i use tone tags ! 
 
