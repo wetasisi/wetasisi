@@ -1,21 +1,16 @@
 <div align="center">
 ESP/ENG
 
-check my strawpage for More info
+check my strawpage for More info (skins, misc stuff, etc)
 
 
-sometimes I reply slowly cuz english isn't my main language, keep that in mind (+ sometimes I'm afk, but usually I always reply whispers) 
+sometimes I reply slowly/dry cuz english isn't my main language and/or sometimes i dont want to talk, keep that in mind (+ im usually I'm afk, but usually I always reply whispers, if you really need to tell me something dm on disc or twt) 
 
 I'm neurodivergent and i use tone tags ! 
 
-I love drawing in other people straw pages, I usually sign with a W
+I love drawing in other people straw pages, I usually sign with a W (BTW!! im not always aware of what x or y person did, so maybe you find a drawing i made on their strawpage, i usually just draw in random strawpages!!)
 
-my main ponies:
-
-https://toyhou.se/30058954.willyh-wonkah-sona [trollsona]
-https://toyhou.se/30259602.skbidi-toilet-tbn [oc]
-
-( pls don't copy them ) 
+i dont have an exact dni yet, i block/hide freely,usually i only do this if you make me uncomfortable, dont be weird or freaky around me pls im a minor
 
 if you need contact me/fast replies you can dm me on discord Wetasisi :) !
 
