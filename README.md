@@ -13,7 +13,7 @@ I'm neurodivergent and i use tone tags !
 
 I love drawing in other people straw pages, I usually sign with a W (BTW!! im not always aware of what x or y person did, so maybe you find a drawing i made on their strawpage, i usually just draw in random strawpages!!)
 
-i dont have an exact dni yet, i block/hide freely,usually i only do this if you make me uncomfortable, dont be weird or freaky around me pls im a minor
+basic dni criteria/proship dni, i block/hide freely! but i dont do it a lot
 
 if you need contact me/fast replies you can dm me on discord Wetasisi :) !
 
