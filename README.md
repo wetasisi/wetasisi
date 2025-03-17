@@ -1,11 +1,11 @@
 <div align="center">
 ESP/ENG
 
-check my strawpage for More info (skins, misc stuff, etc)
+**check my strawpage for More info (skins, misc stuff, etc)**
 
 I PUT MY GITHUB IN MY PONIES, IF I DONT HAVE MY GITHUB THAT PERSON ISNT ME!!!
 
-i usually follow back unless you are a proshipper/basic dni criteria or you have my age range in dni or fandoms im very active on (homestuck for example) btw if i follow someone i shouldnt you can tell me!! dm on disc or twt
+i usually follow back unless you are a proshipper/basic dni criteria or you have my age range in dni or fandoms im very active on (homestuck for example) **btw if i follow someone i shouldnt you can tell me!! dm on disc or twt**
 
 sometimes I reply slowly/dry cuz english isn't my main language and/or sometimes i dont want to talk, keep that in mind (+ im usually I'm afk/offtab, but usually I always reply whispers, if you really need to tell me something dm on disc or twt) 
 
