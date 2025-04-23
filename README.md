@@ -16,7 +16,7 @@ I HAVE  WIFI ISSUES 24/7 !!!! so sometimes i dissonect and rejoin the game a lot
 
 I'm neurodivergent and i use tone tags ! 
 
-tba
+
 
 I love drawing in other people straw pages, I usually sign with a W **(BTW!! im not always aware of what x or y person did, so maybe you find a drawing i made on their strawpage, i usually just draw in random strawpages!!)**
 
@@ -24,7 +24,3 @@ I love drawing in other people straw pages, I usually sign with a W **(BTW!! im 
 
 if you need contact me/fast replies you can dm me on discord Wetasisi :) !
 
-⬆️ btw if You want you can infodump/tell me about your interests too, (pls talk me about Homestuck or fan trolls/kids👀) 
-
-# cool people idk 
-@cotchufli (noob) 
