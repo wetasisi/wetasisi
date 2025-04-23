@@ -12,7 +12,7 @@ i usually follow back unless you are a proshipper/basic dni criteria or you have
 
 sometimes I reply slowly/dry cuz english isn't my main language and/or sometimes i dont want to talk, keep that in mind (+ im usually I'm afk/offtab, but usually I always reply whispers, if you really need to tell me something dm on disc or twt) 
 
-I HAVE  WIFI ISSUES 24/7 !!!! so sometimes i dissonect and rejoin the game a lot
+I HAVE  WIFI ISSUES 24/7 !!!! so sometimes i dissonect and rejoin the game a lot, i usually come back in seconds
 
 I'm neurodivergent and i use tone tags ! 
 
