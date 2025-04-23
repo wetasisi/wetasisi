@@ -27,4 +27,4 @@ if you need contact me/fast replies you can dm me on discord Wetasisi :) !
 ⬆️ btw if You want you can infodump/tell me about your interests too, (pls talk me about Homestuck or fan trolls/kids👀) 
 
 # cool people idk 
-@cotchuflii (noob) 
+@cotchufli (noob) 
