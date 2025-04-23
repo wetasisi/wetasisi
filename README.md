@@ -1,6 +1,7 @@
 <div align="center">
 ESP/ENG
- 
+
+ # WEAS / pt stuff
  REQUEST/FREE ART HERE --> https://docs.google.com/forms/d/e/1FAIpQLSccbZs0e0_YtBF1pOBc-av2DfsTR4p_0Zbr-lT2gKr5W5pkKw/viewform?usp=header
  
 **check my strawpage for More info (skins, misc stuff, etc)**
@@ -14,6 +15,9 @@ sometimes I reply slowly/dry cuz english isn't my main language and/or sometimes
 I HAVE  WIFI ISSUES 24/7 !!!! so sometimes i dissonect and rejoin the game a lot
 
 I'm neurodivergent and i use tone tags ! 
+
+# cool people 
+tba
 
 I love drawing in other people straw pages, I usually sign with a W **(BTW!! im not always aware of what x or y person did, so maybe you find a drawing i made on their strawpage, i usually just draw in random strawpages!!)**
 
