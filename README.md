@@ -2,7 +2,7 @@
 ESP/ENG
 
  # WEAS / pt stuff
- CHECK MY ART FIGHT PAGE!! --> https://artfight.net/~Weta
+
  
 **check my strawpage for More info (skins, misc stuff, etc)**
 
